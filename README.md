@@ -17,4 +17,4 @@
 
 ## 📫 Connect with me
 - GitHub: https://github.com/roshnipatelbtech2024-png
-- LinkedIn: (add your link here)
+- LinkedIn: (www.linkedin.com/in/roshni-patel-208023324)
